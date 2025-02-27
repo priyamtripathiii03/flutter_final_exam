@@ -51,5 +51,9 @@ Track and manage your personal finances effortlessly with this intuitive app! He
      <img src="https://github.com/user-attachments/assets/ca26bafd-6bcc-4594-89d6-cfd38ad5253d"height="35%" width="22%">
 </p>
 
+
+https://github.com/user-attachments/assets/681a6bf5-e55c-48f0-b360-4b74c4460144
+
+
 https://github.com/user-attachments/assets/37c90ca4-e857-47c8-bbe5-67f50021220c
 
